@@ -1,4 +1,4 @@
-# study-group
+# Study Group FAQs
 
 ¡Hola, Hola! 😊 
 
