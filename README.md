@@ -10,9 +10,6 @@ Nos reuniremos todos los Jueves a las 17:00 de la tarde para estar acompañados 
 **¿Qué herramienta utilizaremos para la llamada?**. 
 Vamos a reuninor por un enlace de Google Meet 🙂
 
-**Reglas básicas**. 
-En este grupo de estudio no se va a aceptar ningún mensaje irrespetuoso a ninguno de nuestros compañeros o hacia algún colectivo. Así que por favor, pensemos en que hay otra persona detrás de la pantalla que puede leer lo que estamos escribiendo. 🙂
-
 **Pregunta dudas**. 
 Recordemos que nos encontramos en una zona segura de aprendizaje, por lo que por fa, no enviémos mensajes privados para preguntar 🙏 Intentemos poner todas nuestras dudas en este canal y así podemos ayudarnos los unos a los otros. 
 
