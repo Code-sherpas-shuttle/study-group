@@ -5,7 +5,7 @@
 ¡Bienvenido a nuestro grupo de estudio! 📚
 
 **¿Cuándo serán las sesiones?**. 
-Nos reuniremos todos los Jueves a las 17:00 de la tarde para estar acompañados en nuestro aprendizaje. Intentemos no llegar tarde para no parar el flujo de aprendizaje.
+Nos reuniremos todos los Martes a las 17:00 de la tarde para estar acompañados en nuestro aprendizaje. Intentemos no llegar tarde para no parar el flujo de aprendizaje.
 
 **¿Qué herramienta utilizaremos para la llamada?**. 
 Vamos a reuninor por un enlace de Google Meet 🙂
